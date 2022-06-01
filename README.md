@@ -1,11 +1,17 @@
 - 👋 Hi, I’m @Mothq
-- 👀 I’m interested in debian cli
-- 🌱 I’m currently learning what bitcoin is
+- 👀 I’m interested in telnet
+- 🌱 I’m currently learning bitcoin investment
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: skylerrice512@gmail.com
 
 - Replit: https://replit.com/@Mothq
 - Telehack: m0th
+
+- Worthless human
+- Gen z Trash
+- Hypnospace Enforcer
+- Discord Moderator
+- Furry
 
 <!---
 Mothq/Mothq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
