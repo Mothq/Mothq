@@ -6,7 +6,7 @@
 <br>
 - Website: (i disowned it)<br>
 - Replit: https://replit.com/@Mothq<br>
-- Telehack: m0th
+- Telehack: m0th<br>
 - YouTube: https://www.youtube.com/channel/UC7ZkCV7PlZYB_b4QvTsdKEw<br>
 <br>
 - Worthless human<br>
